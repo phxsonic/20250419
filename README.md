@@ -1,6 +1,6 @@
-# NIGHT OF NEURALGIA: Public Info Sheet
+# SONAR & NIGHT OF NEURALGIA: Public Info Sheet
 
-**Welcome to the Night of Neuralgia.**  
+**Welcome to the SONAR**  
 We are a community-focused series of noise, experimental, and sonic art events hosted in a resonant space dedicated to raw expression, deep listening, and vibrational therapy.
 
 ---
